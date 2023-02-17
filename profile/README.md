@@ -1,3 +1,6 @@
+                                                     🎉Welcome To Ascent Academy🎉
+
+
 About Us
 
 Welcome to our organization! Our mission is to provide internships for students and professionals looking to gain valuable experience in their field. We also aim to foster collaboration by bringing people together to work on projects and share their knowledge and expertise.
