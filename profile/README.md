@@ -1,4 +1,4 @@
-                                                                  🎉Welcome To Ascent Academy🎉
+                                                            🎉Welcome To Ascent Academy🎉
 
 Vision: 
 
