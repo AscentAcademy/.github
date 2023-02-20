@@ -1,21 +1,13 @@
-                                                     🎉Welcome To Ascent Academy🎉
+                                                                  🎉Welcome To Ascent Academy🎉
 
+Vision: 
 
-About Us
+To be the leading provider of opportunities and services, and be recognized as the driving force behind the growth and success of our clients.
 
-Welcome to our organization! Our mission is to provide internships for students and professionals looking to gain valuable experience in their field. We also aim to foster collaboration by bringing people together to work on projects and share their knowledge and expertise.
+Mission:
 
-Who is this Community for?
+We are committed to delivering the best opportunities and services to our clients by leveraging our expertise and resources, and continuously striving to improve and innovate in order to drive growth and ensure success.
 
-Our organization is open to anyone who is interested in participating. We do not charge any fees for our services and everything is done on a voluntary basis. We believe that everyone should have access to opportunities to learn and grow in their careers.
-
-To get started, simply browse our list of internship opportunities or projects and apply for the ones that interest you. Once you are accepted, you will work closely with your mentor or project leader to complete your tasks and gain the experience you need.
-
-We also encourage collaboration among our members. We have a forum where you can ask questions, share ideas, and connect with other like-minded individuals. You can also join our monthly virtual meetings to network and learn from each other.
-
-Our Values
-
-At our organization, we are committed to promoting inclusivity, diversity, and equality. We believe that everyone deserves a fair chance to succeed in their careers and that everyone has something valuable to offer. We also believe in transparency, accountability, and open communication.
 
 Join Us
 
